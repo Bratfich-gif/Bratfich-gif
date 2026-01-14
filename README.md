@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Thomas 😁
+## Bem-vindo(a) ao perfil do Thomas
 
  <div>
    <a href="https://github.com/Bratfich-gif">
